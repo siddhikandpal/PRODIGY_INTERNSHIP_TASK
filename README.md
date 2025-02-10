@@ -46,3 +46,5 @@ We believe this internship will be a transformative experience, providing a soli
 Best of luck on your internship journey at Prodigy InfoTech! If you have any questions, feel free to reach out to your mentor or the internship coordinator.
 
 *Happy Coding!*
+Hardwork Alwas Pay off 
+Dont go for Pay 
